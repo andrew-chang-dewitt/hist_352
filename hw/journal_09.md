@@ -37,3 +37,12 @@ on Thompson & nativism
     distracting people
   - neither seems to actually hold any consistent ideology other than the
     desire to hold power
+
+
+...
+
+> Progressive reformers—most of whom were Anglo-American, middle-class, and well educated—pursued Prohibition as a way of limiting the power of European immigrants
+
+this quote about Progressive's motivation regarding Prohibition really stands out. Did "Progressive" have that different of a political meaning in this time? Or perhaps it's something akin to today's self-declared "progressive liberals" who champion NIMBY housing policies & conveniently chose 90%+ white schools for their kids with extremely well-funded parent organizations?
+
+The paragraphs immediately surrounding this quote read (to me at least) with a satisfied schadenfreude, pointing out the "supreme irony" of how this particular motivation for Prohibition backfired on an immense scale. 
